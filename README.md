@@ -1,2 +1,2 @@
 # stunning-octo-rotary-phone
-cssi test project
+Once there was a student who attended CSSI.
