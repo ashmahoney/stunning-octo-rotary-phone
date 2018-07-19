@@ -14,3 +14,5 @@ He will make only two friend in prison, Yoshi, who apparently committed a simila
 
 
 Now 2018 can be the year we can finally return to reality.
+
+And that's how humanity lived happily ever after. The End.
